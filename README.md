@@ -1,0 +1,1 @@
+Bu ai yordamida yasalgan.
